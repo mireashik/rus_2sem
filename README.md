@@ -82,3 +82,24 @@
 
 ![image](https://github.com/mireashik/rus_2sem/assets/49165758/70e35700-f06e-4009-908e-5e34d75a33a9)
 
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/ece96f15-c99a-4b61-8f6c-a60eb28231c9)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/3f220799-5997-4e50-a124-e5d2fad6aef2)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/8d61a39e-b0c1-4f44-b687-aede8f18f2c8)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/356dddcd-c715-484d-aabd-07bf0a74599a)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/28b05d91-581d-4dbc-b421-65b6a5445204)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/46e2cd33-8415-4eb2-a2f0-f8039dd60703)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/4266112c-4fd0-406a-9774-db59054cc003)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/80eb11da-f097-43dd-bef9-aac0d2fd8c08)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/f26ca2e2-5836-4954-a6a5-47b412b29a2d)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/2997d2dc-9cc1-4342-92d2-c3d9b3a5b2d1)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/e43532aa-c67d-40a9-ac49-ef06e4f9adb9)
