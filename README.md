@@ -76,3 +76,9 @@
 ![image](https://github.com/mireashik/rus_2sem/assets/49165758/41ebbfdd-d5c9-4699-8f52-b5acc6595f3c)
 
 ![image](https://github.com/mireashik/rus_2sem/assets/49165758/6e0ffa9b-556a-467e-b5ae-ad96fa8addd0)
+
+## 6. Официально-деловой стиль. Специфика документных текстов: лексика, морфология, синтаксис.
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/9810195b-e802-492a-b0f0-6bfd72d5eeaa)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/70e35700-f06e-4009-908e-5e34d75a33a9)
+
