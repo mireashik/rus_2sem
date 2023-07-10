@@ -103,3 +103,30 @@
 ![image](https://github.com/mireashik/rus_2sem/assets/49165758/2997d2dc-9cc1-4342-92d2-c3d9b3a5b2d1)
 
 ![image](https://github.com/mireashik/rus_2sem/assets/49165758/e43532aa-c67d-40a9-ac49-ef06e4f9adb9)
+
+## 7. Публицистический стиль. Характеристика публицистических текстов: лексика, морфология, синтаксис. Методы воздействия в публицистике. Особенности рекламных текстов.
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/b85f8123-55f4-4651-9dbc-e3127835a9d5)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/38ba081c-0fb7-41d6-88b7-b1cf8ac3abe9)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/8469bf3c-55d1-4db9-bd56-657d8c586bdd)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/ad3cc8dc-6b7e-488e-9103-beec88088127)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/92648bff-efda-4eb4-a720-f5b36ce58ef6)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/8ac0b5c0-5714-4893-882f-00a46fef3e1d)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/e69bae1e-422f-4b48-b7bb-f361329530c5)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/f60a9384-7959-42c6-805e-a6caa1ea6a60)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/c8544e5e-2171-4427-9126-8d2ff5b06f2a)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/411f1dcc-fb2f-4ce7-9143-a01b50c283cd)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/d5b1beb9-3c4b-4d8b-9251-3fc551d2a484)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/3fc4b528-b280-4aaa-bd91-bd0527fd6542)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/a6e84856-0b0c-46c5-bff4-764b3c4e2f98)
