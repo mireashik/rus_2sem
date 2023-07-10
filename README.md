@@ -1,76 +1,78 @@
 ## 1. Литературный язык. Понятие нормы. Русский литературный язык и язык литературы. Понятие нормы. Нелитературные варианты языка.
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/44f70860-0250-4e67-bc62-c3a3e1a80dfb)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/90891425-25c5-4d37-be7f-9fa7aa138b7a)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/7147c049-e8c2-4e89-8224-ec4371957e56)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/62fb3362-3dc6-4aaf-81f3-931c93fb8326)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/50db76d0-348d-4fbc-b7cc-8cdbe394d045)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/cf64c4a8-0a2a-460b-b321-67c1cc9ab91e)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/1f00c031-d866-4480-b91f-90686dd7989f)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/9e6c05df-de58-4488-b816-1db58f4d107e)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/93867553-0408-43f2-b440-f4b385a4fd2a)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/c0685515-ffc6-4cdd-8f08-25cd4df5fff2)
+
 
 ## 2. Уровни языковой системы. Лексические нормы русского языка. Распространенные случаи отклонения от лексических норм: неверное использование паронимов, синонимов, заимствованных слов, тавтология, плеоназм, анахронизм, алогизм, нарушение лексической сочетаемости.
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/741b3746-acb6-4419-9adb-0ba601b9c305)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/f52d585e-8703-41d0-9787-0e063a29cad1)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/5e652d8e-c97e-4d10-8ac8-2f75bf20879d)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/e16cebd1-ac70-4fcd-97e0-3c60bade4555)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/bd3c74c6-c8b0-416e-956c-1d1736855d70)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/0f75473b-d90c-4669-9f82-ec237e91bbe0)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/c3a5cb8a-6f5c-469a-9c22-1d2576f777e1)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/949a1f48-6ef9-4ac2-a52d-6eea508dea6e)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/b912acca-1353-451f-8815-79675e2c698e)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/6af94a82-c497-4d17-9d6e-d9f81a24d4c5)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/66a58cf1-cc33-4f76-8e0c-99b34142bda0)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/4df86d3d-66bb-4a3e-a756-9ea23b6f65db)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/3139dcf5-a3b5-4c6b-a46e-0265ef84e829)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/efeec225-ede0-42fc-8de0-8912759d1b04)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/a00903d7-88df-46e4-99ee-102c35851efa)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/cdb9c0a8-e840-4696-86f3-8cad5d779199)
 
 ## 3. Морфологические нормы русского языка. Распространенные случаи отклонения от морфологических норм: неверное использование рода, множественного числа имен существительных, ошибки при склонении количественных и порядковых числительных, ошибки при использовании собирательных числительных, нарушение морфологических норм глаголов.
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/64b0ef52-3f80-4e8f-ae2a-48bf9c5ed4a5)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/5d8bd12f-787a-4581-b66d-269f4565c3b2)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/401d43c1-6ce4-40e1-96a2-1c694d6c75f3)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/575f64c7-516b-4bed-8365-45a842ccb3fc)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/226c2b95-5a39-4be1-9008-2f27fa2bca09)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/adcfd2ac-ceae-4eb3-8bba-04b6adfbddac)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/c5703a02-e417-40cb-9d1b-6913f513995a)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/8dde32d1-e873-4071-9a6d-908cbf7d285f)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/312a4027-6ae9-4404-b5b2-5ef3b74fe84e)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/e8c385f0-b963-4dfc-a938-2669da59e054)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/22e7ad90-b5c6-46b2-a52a-1dda91bbd875)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/a9341e54-8148-4202-98a6-685280501fcb)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/fa5a7847-660c-4e64-89a5-48e8640dcc7d)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/b94b405e-dc78-40cd-96ad-287cca1ec5ca)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/e796e396-9966-4706-ac74-b2f6fa28eee2)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/bb0c8358-fa9b-444b-8d8a-109ea5d690b1)
 
 ## 4. Синтаксические нормы. Распространенные случаи отклонения от синтаксических норм: нарушение порядка слов, нарушение управления в словосочетаниях, неправильное использование деепричастных оборотов, нарушение грамматического согласования, ошибки при использовании однородных членов.
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/33dad03f-ada5-4282-917f-b1372b30f3bf)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/6b49d4bf-438e-43a5-ad75-700a1d23c6a0)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/13f0bfbb-ab58-44ad-be78-baf6b0efa2c9)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/64690b13-f567-475a-969f-b576fb7e07c1)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/f6256c4e-ba4e-4388-b424-36dbac135b24)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/6e4027bd-7296-4eb8-8b88-1073f7b37e8f)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/7775fbb8-4796-4d7f-80ff-4d497ab0e8fb)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/c2d4f58d-d552-40c1-9528-5fab40ed8106)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/f08f1954-9d42-4847-b808-ee1ba6f243f7)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/f43780f0-0ed7-4e0d-aa52-277d71c607e3)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/af7c9143-a05f-4e5e-b26a-cc8baa3a65ab)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/fb93f088-fdc1-4774-a493-8f08033c37e0)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/e36e586d-d3b9-45ae-9f99-f42c80cb3cd8)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/e77eabeb-bdc9-4483-a9ec-95c49653d0a1)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/660d1810-1f10-40a7-9524-9b27c5ae5636)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/fcc95521-9142-41c6-9495-3dd0f96ec8f2)
+
 
 ## 5. Функциональные стили современного русского литературного языка. Научный стиль. Особенности научного текста: лексика, морфология, синтаксис.
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/b3b237e5-3404-4dff-a1f9-071af53e93c2)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/68e71486-18cb-4f4c-876b-b9ef4ba59572)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/98d53a45-abab-4a7d-9191-ad93d3bd658e)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/284dab8a-ac69-4f99-a3c9-0c92f3b80b44)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/fe199f1e-6a34-453e-932c-b64b293f0d84)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/ebf72eb7-39b2-4497-8c6c-51b8dcdc66e6)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/4fd4e76b-e690-4614-810e-f7415a0f3411)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/aeff601b-44ec-4147-9fd3-42a8d0dbd733)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/aaa718fd-27e8-4ed8-b169-eeb25733d261)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/48cc3ccb-ccf5-477d-b171-84f6d107043e)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/ac463bc5-6e09-41ea-ab4a-bb5ec7ed015a)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/41ebbfdd-d5c9-4699-8f52-b5acc6595f3c)
 
-![image](https://github.com/githubcommits/rus_2sem/assets/49165758/a880fce6-e3ab-4c16-a470-ff6fb073169b)
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/6e0ffa9b-556a-467e-b5ae-ad96fa8addd0)
