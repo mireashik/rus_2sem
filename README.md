@@ -130,3 +130,22 @@
 ![image](https://github.com/mireashik/rus_2sem/assets/49165758/3fc4b528-b280-4aaa-bd91-bd0527fd6542)
 
 ![image](https://github.com/mireashik/rus_2sem/assets/49165758/a6e84856-0b0c-46c5-bff4-764b3c4e2f98)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/3b52b7e1-dbc1-4cd1-a133-dfba30d2e4ab)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/25700aa1-ba16-4f35-8036-4d8e05b12881)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/1e218b36-cefa-4522-aca6-fef285ced6ed)
+
+## 8. Разговорный стиль. Лексика, морфология и синтаксис в разговорной речи. Сферы функционирования разговорной речи. Литературные и нелитературные варианты разговорной речи.
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/64251fdd-556a-4de5-b846-fe7b582fe2e5)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/75e64ef5-ff42-4bf7-b2e6-bbb4496d3fdf)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/5e16aa9e-9da2-4cf8-8ed7-86e904edfd36)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/2b2acc92-f8f4-4a29-a244-7a509cf5007b)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/8269bc15-e06a-4380-9d5d-51d2b5dacfdb)
+
+![image](https://github.com/mireashik/rus_2sem/assets/49165758/9d71d387-7a17-4785-bdbe-5114ee5286fe)
